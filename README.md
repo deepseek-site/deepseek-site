@@ -1,12 +1,12 @@
 # DeepSeek官网：DeepSeek网页版、DeepSeek官方平替 | 最新使用指南~【2025年2月更新】
 
-> **更新日期：2025年02月14日**  
+> **更新日期：2025年02月15日**  
 
-轻松使用 **DeepSeek官网**、**DeepSeek网页版**，**DeepSeek官方平替**，**快速、稳定、不卡顿**~   
+轻松使用 **[DeepSeek官网](https://chat.lify.vip/)**、**[DeepSeek网页版](https://chat.lify.vip/)**，**[DeepSeek官方平替](https://chat.lify.vip/)**，**快速、稳定、不卡顿**~   
 
-支持 **DeepSeek R1 满血版** 以及 **ChatGPT o1、o3** 大模型。
+支持 **[DeepSeek R1 满血版](https://chat.lify.vip/)** 以及 **ChatGPT o1、o3** 大模型。
 
-本指南提供全面的 **DeepSeek 使用说明**，包括**DeepSeek 官网平替**、**DeepSeek网页版**，助您顺畅使用 DeepSeek 和 ChatGPT ~
+本指南提供全面的 **DeepSeek 使用说明**，包括 **[DeepSeek 官网平替](https://chat.lify.vip/)**、**[DeepSeek网页版](https://chat.lify.vip/)**，助您顺畅使用 DeepSeek 和 ChatGPT ~
 
 ---
 
@@ -23,14 +23,14 @@
 ## DeepSeek 官网
 
 * **DeepSeek 官网**：[官网繁忙](https://www.deepseek.com/)
-* **推荐使用**：[🔥一下AI🔥](https://chat.lify.vip)【🔥快速稳定】
+* **DeepSeek 官网平替**：[🔥一下AI](https://chat.lify.vip)【🔥快速稳定】
 * **服务器繁忙？查看状态：** [访问](https://status.deepseek.com/)
 
 ---
 
 ## DeepSeek 官网平替
 
-* **🔥AI智慧岛：** [chat.lify.vip](https://chat.lify.vip/) - **DeepSeek网页版**，支持 **DeepSeek R1满血版**、V3模型
+* **🔥AI智慧岛：** [chat.deepseek-free.org](https://chat.lify.vip/) - **DeepSeek网页版**，支持 **DeepSeek R1满血版**、V3模型
 * **🔥一下 AI：** [www.yixiaai.com](https://www.yixiaai.com/) - **AI大模型**，支持 DeepSeek、ChatGPT 和 Claude 的最强模型，支持AI助手、AI插件、AI文件、AI PPT等实用功能~
 * **秘塔 AI：** [访问](https://metaso.cn/)
 * **纳米 AI：** [访问](https://www.n.cn/)

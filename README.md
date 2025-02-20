@@ -1,6 +1,6 @@
 # DeepSeek官网：DeepSeek网页版、DeepSeek官方平替 | 最新使用指南~【2025年2月更新】
 
-> **更新日期：2025年02月20日**   
+> **更新日期：2025年02月20日**    
 
 轻松使用 **[DeepSeek官网](https://chat.lify.vip/)**、**[DeepSeek网页版](https://chat.lify.vip/)**，**[DeepSeek官方平替](https://chat.lify.vip/)**，**快速、稳定、不卡顿**~   
 

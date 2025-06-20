@@ -1,6 +1,6 @@
 # DeepSeek官网：DeepSeek网页版、DeepSeek官方平替 | 最新使用指南~【2025年6月更新】
 
-> **更新日期：2025/06/19**          
+> **更新日期：2025/06/22**          
 
 轻松使用 **[DeepSeek官网](https://chat.lanjingai.org)**、**[DeepSeek网页版](https://xsimplechat.com/)**，**[DeepSeek官方平替](https://chat.yixiaai.com/)**，**快速、稳定、不卡顿**~   
 
